@@ -1,0 +1,2 @@
+# moaaaaaiiiiiii.github.io
+redirect
